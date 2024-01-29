@@ -1,3 +1,3 @@
 # MeanMaxCodingame
 
-Version League gold if MeanMax codingame game.! !! :->
+Version League gold of MeanMax codingame game.! !! :->
